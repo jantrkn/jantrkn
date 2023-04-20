@@ -7,6 +7,6 @@
 - I’m looking to collaborate on R and Python biology projects. 
 - I’m looking for help with Python and R.
 - How to reach me: jantrkn@gmail.com
-- Pronouns: she/her
+- Pronouns: she/her they/them blob/lasagna
 
 
